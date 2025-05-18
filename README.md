@@ -1,7 +1,7 @@
 # digital-portfolio
 My Digital Portfolio for PRP370S
 
-Welcome to my digitat portfolio for the Work Readiness Training module.
+Welcome to my digital portfolio for the Work Readiness Training module.
 
 
 ---
