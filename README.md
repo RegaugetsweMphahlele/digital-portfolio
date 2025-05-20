@@ -131,3 +131,11 @@ I reviewed my CV for errors, ensured that all important sections were included  
 My CV was successfully submited. This process gave me the confidance to apply for real opportunities in the future and helped me learn how to present myself professionally on paper.
 
 
+
+---
+
+
+## 6️⃣ Contact
+
+Thank you for viewing my portfolio.
+✉ Email: regaogetswemphahlele@gmail.com
